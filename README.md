@@ -1,0 +1,2 @@
+# CURI-SCRIPT
+Maior script 🤑
